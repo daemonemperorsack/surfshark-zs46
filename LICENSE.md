@@ -1,4 +1,4 @@
-
+rare Surfshark Extension | geo-unblocking + IP-masking offers the most advanced Surfshark extension, with geo-unblocking and IP-masking. Ideal for users who value privacy and
 
 
 
